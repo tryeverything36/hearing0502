@@ -1,3 +1,1 @@
-https://sendgb.com/wytDEmuevSR
-
-https://drive.google.com/file/d/1L7JQYyvjBqHAP6aOGhZ6tZB4GKYCFXDF/view?usp=sharing
+https://drive.google.com/file/d/1v_BXbPs96n78BNd8OQiNiFE4x0GxEU4j/view?usp=sharing
